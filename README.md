@@ -1,4 +1,0 @@
-hoangtin
-========
-
-Nguyễn Hoàng Tín
